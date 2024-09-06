@@ -8,7 +8,8 @@
 
 💞️ I’m looking to collaborate on projects that combine creativity, problem-solving, and a dash of innovation. If you have an idea that excites you, let’s work together to bring it to life!
 
-📫 How to reach me: ervandlololok@gmail.com
+📫 How to reach me: 
+zagariydo22@st.ithub.ru
 
 😄 Pronouns: Russia
 
