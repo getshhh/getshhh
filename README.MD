@@ -14,3 +14,5 @@ zagariydo22@st.ithub.ru
 😄 Pronouns: Russia
 
 ⚡ Fun fact: I love experimenting with new coding techniques and exploring the latest advancements in AI and machine learning. My Kword - https://kwork.ru/user/getshhh
+
+✉️ Card - https://getshhh.github.io/-/
